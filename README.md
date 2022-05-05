@@ -1,2 +1,1 @@
-# Ken'ichiro
-# Tanaka
+# K. Tanaka
